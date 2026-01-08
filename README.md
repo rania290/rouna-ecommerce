@@ -1,4 +1,4 @@
-![Rouna Banner](file:///C:/Users/rania/.gemini/antigravity/brain/df38ece0-efe5-4289-a9c1-8027b224480d/rouna_ecommerce_banner_1767897711442.png)
+
 
 # 💎 Rouna - Plateforme E-Commerce de Haute Joaillerie & IA
 
